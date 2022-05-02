@@ -1,2 +1,1 @@
-- 👋 Hi, I’m @nandeyanen1729
-
+- 👋 Hi, I’m @nandeyanen1729 I'm just a tech.
